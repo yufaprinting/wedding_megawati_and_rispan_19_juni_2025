@@ -1,1 +1,0 @@
-# wedding_megawati_and_rispan_19_juni_2025
